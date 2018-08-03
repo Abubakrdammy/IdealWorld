@@ -1,1 +1,1 @@
-# IdealWorld
+# IdealWorld says hello! I am always curious about new inventions and wanting to give new things a try. I am not interested in undertanding others but really interested in myself and my contributions to the society
